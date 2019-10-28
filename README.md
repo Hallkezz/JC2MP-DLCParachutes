@@ -12,4 +12,4 @@
 
 __Pleasant use! :)__
 
-[Topic on JC2MP](https://www.jc-mp.com/forums/index.php/topic,6085.0.html)
+[Post on JC2MP forum](https://www.jc-mp.com/forums/index.php/topic,6085.0.html)
